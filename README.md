@@ -3,4 +3,5 @@ Oi pessoal da furia, eu não consegui achar uma hospedagem grátis que suportass
 espero que possam aproveitar e se divertir com esse projeto
 
 
-![images](https://github.com/user-attachments/assets/8e0df408-bd91-491d-a01f-821b1b719b40)
+
+![mossawi_152245956000_20190128150135_701922027894](https://github.com/user-attachments/assets/145f7ebe-2066-41b1-b31e-5873a067d854)
